@@ -1,0 +1,2 @@
+EditingAlmagestFolio15-left-
+============================
